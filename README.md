@@ -1,1 +1,1 @@
-# Altin-Elbiseli-Adam-Logo
+# Altın Elbiseli Adam Logo
